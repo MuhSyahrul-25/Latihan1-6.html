@@ -1,1 +1,1 @@
-# Latihan1-6.html
+# Latihan1-6/Studi Kasus1-2
